@@ -29,6 +29,6 @@ Website über die [**Wirtschaftspolitik der Schweiz**](https://wirtschaftspoliti
 
 ## 📫 Kontakt  
   
-- E-Mail: cekajxriart@gmail.com  
+- E-Mail: cekaj.riart@outlook.com  
 
 ---
